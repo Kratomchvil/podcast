@@ -1,1 +1,0 @@
-vyborny je curak
